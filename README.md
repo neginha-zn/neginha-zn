@@ -2,4 +2,4 @@ NOME:aline moreira fernandes
 IDADE:17.
 SOBRE MIM: quero ser pscologa..
 trabalho em uma tabacaria
-moro com minha mae e tenho 2
+moro com minha mae 
